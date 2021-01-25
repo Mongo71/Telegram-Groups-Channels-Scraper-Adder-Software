@@ -1,4 +1,4 @@
-https://telegram-groups-scraper-adder.com/
+http://telegram-groups-scraper-adder.com/
 
 
 Scrape Members From Other Groups In Your Niche & Automatically Add UpTo 200,000 REAL Telegram Active Members To Each Of Your Telegram Groups TODAY! Make A Massive Amount Of Money Promoting Your Services And Products To Your Members EASILY..
