@@ -43,24 +43,4 @@ A: Don’t worry you will get my contact details inside the setup guide so you c
 
 
 
-Join Our Telegram Groups.
-
-https://t.me/tg_marketing_scripts
-
-https://t.me/internetmarketingbots
-
-https://t.me/mongoseomarketplace
-
-
-Join Our Facebook Group.
-
-
-https://www.facebook.com/groups/makemoneyonlineinfo
-
-
-Follow Us On Twitter.
-
-https://twitter.com/MediaBots71
-
-
 telegram-scraper, linux, information-retrieval, telegram, python3, promotion, termux, information-gathering , smsbomber, termux-tool telegram-scraper-bot, telegram-api, nodejs, node-js, google-script, python, bot scraper, monitor telegram, telegram-bot, surveillance, telegram-api listener, listen cryptocurrency, spy telegram-bot-api, telegrambot, telethon, telethon-userbot, telegram-advertising, export-telegram-group-members, telegram-marketing-group, telegram-bulk-message-sender, telegram-advertising-software, telegram-bulk-sender, telegram-sender, telegram-marketing-tools, advertise-telegram-group, telegram-auto-reply, telegram-marketing, extract-telegram-group-members, telegram-scraper-bot, export-telegram-users, telegram-scraper, telegram-export, telegram-business-groups, import-export-telegram-group, telegram-group-scraper, telegram-username-scraper, export marketing telegram, extract member software, scrape, group, add telegram-member-telegram-auto-group-scraper, export-telegram-group-members, how-to-copy-telegram-group-members, telegram-marketing-group
