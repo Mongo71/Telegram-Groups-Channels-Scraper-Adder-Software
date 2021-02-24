@@ -1,5 +1,10 @@
 http://telegram-groups-scraper-adder.com/
 
+TELEGRAM SCRAPER SOFTWARE..
+https://youtu.be/pL8dO_1QVf0
+
+TELEGRAM BULK MESSAGE SENDER..
+https://youtu.be/t3j3N4xYwpA
 
 Scrape Members From Other Groups In Your Niche & Automatically Add UpTo 200,000 REAL Telegram Active Members To Each Of Your Telegram Groups TODAY! Make A Massive Amount Of Money Promoting Your Services And Products To Your Members EASILY..
 
